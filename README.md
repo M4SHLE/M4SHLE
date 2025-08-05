@@ -2,6 +2,6 @@
   
 ---
 
-<img src="https://github.com/user-attachments/assets/1bf9f1c4-6f60-4428-b34e-329c52960c6b"/>
+<img src="https://github.com/user-attachments/assets/b0602f61-76b6-43dc-9ed7-ccdd6fad0f7e"/>
 
 ---
