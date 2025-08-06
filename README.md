@@ -6,6 +6,4 @@
 
 ***following back accs from main***
 
-block if u want= ok!!
-
 ---
