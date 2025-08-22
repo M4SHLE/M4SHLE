@@ -2,7 +2,7 @@
   
 ---
 
-<img src="https://github.com/user-attachments/assets/f174b4c4-067b-4158-aa21-9a433edc63e4" width="95%"/>
+<img src="https://github.com/user-attachments/assets/e72f10a5-4f8b-4e66-b584-bbd564272f2c" width="95%"/>
 
 spam following maybe....)) u can block ok?
 
