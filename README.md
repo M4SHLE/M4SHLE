@@ -8,6 +8,8 @@ spam following maybe....)) u can block ok?
 
 if u see ths ACCOUNT FOLLOWING someone **PROBLEMATIC** TELL ME or I WILL CRY
 
+<a href="https://mashle.atabook.org/">atabook</a>ㅤㅤㅤㅤ<a href="https://rentry.co/m4shle">rentry</a></p>
+
 ---
 
 <img src="https://github.com/user-attachments/assets/70ecfcf0-0a4f-4681-8a85-c43f5eaa3895" width="20%"/>
